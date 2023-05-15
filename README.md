@@ -1,4 +1,4 @@
-### Hi there, I'm Alekze 👋
+### Hi there, I'm Oyka 👋
 
 * 🔭
    I’m currently working on roleplay servers
